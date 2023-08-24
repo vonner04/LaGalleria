@@ -1,0 +1,1 @@
+Motive? Showcasing my hobbies and interests through learning web-design.
